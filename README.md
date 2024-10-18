@@ -10,4 +10,4 @@
 A4577/A4577 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Hello I am A4577 an I am the offical an legal representive of the true Octocat! Thats right Octocat has several identies with that being said I will be sure that he thanks every single person who has contributed to this vision of the future
+Hello I am Phoenix A4577 an I am the offical an legal representive of the true Octocat! Thats right Octocat has several identies with that being said I will be sure that he thanks every single person who has contributed to this vision of the future
